@@ -18,3 +18,8 @@ https://www.kaggle.com/
 ## DAY-1 QUIZ-2 Leadboard
 
 ![image](https://github.com/user-attachments/assets/e954df34-3b55-493e-bfaf-c1d274f9950f)
+
+## DAY-3 QUIZ-3 Leadboard
+
+![image](https://github.com/user-attachments/assets/8b6d0181-aadf-427f-b787-97f81d822daa)
+
