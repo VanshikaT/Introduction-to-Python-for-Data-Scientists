@@ -9,3 +9,9 @@ https://www.kaggle.com/
 ## Poll Screenshot
 
 ![image](https://github.com/user-attachments/assets/bc31acc3-84a8-4e4a-89df-f0a430ccb80c)
+
+
+## DAY-1 QUIZ-1 LEADBOARD
+
+![image](https://github.com/user-attachments/assets/509472fe-5e04-4c0c-9546-2964428d1ea8)
+
