@@ -15,3 +15,6 @@ https://www.kaggle.com/
 
 ![image](https://github.com/user-attachments/assets/509472fe-5e04-4c0c-9546-2964428d1ea8)
 
+## DAY-1 QUIZ-2 Leadboard
+
+![image](https://github.com/user-attachments/assets/e954df34-3b55-493e-bfaf-c1d274f9950f)
