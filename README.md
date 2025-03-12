@@ -27,4 +27,9 @@ https://www.kaggle.com/
 
 ![image](https://github.com/user-attachments/assets/05c7d79b-3008-4b4f-8c3b-0dae68c4224f)
 
+## DAY-2 QUIZ-1 Leadboard
+
+![image](https://github.com/user-attachments/assets/3fd6bcd1-457c-4430-b56a-999774d9470f)
+
+
 
