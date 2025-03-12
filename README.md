@@ -35,6 +35,9 @@ https://www.kaggle.com/
 
 ![image](https://github.com/user-attachments/assets/664e183e-ae2b-4e81-bb44-664b5647d230)
 
+## DAY-3 Self Revision Schedule
+
+![image](https://github.com/user-attachments/assets/6aba2bc3-9548-497b-8c47-e3d3c6825590)
 
 
 
