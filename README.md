@@ -24,6 +24,7 @@ https://www.kaggle.com/
 ![image](https://github.com/user-attachments/assets/8b6d0181-aadf-427f-b787-97f81d822daa)
 
 DAY-2 Self Revision Schedule
+
 ![image](https://github.com/user-attachments/assets/05c7d79b-3008-4b4f-8c3b-0dae68c4224f)
 
 
