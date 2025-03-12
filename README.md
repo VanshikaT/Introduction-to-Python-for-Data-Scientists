@@ -31,5 +31,10 @@ https://www.kaggle.com/
 
 ![image](https://github.com/user-attachments/assets/3fd6bcd1-457c-4430-b56a-999774d9470f)
 
+## DAY-2 QUIZ 2 Leadboard
+
+![image](https://github.com/user-attachments/assets/664e183e-ae2b-4e81-bb44-664b5647d230)
+
+
 
 
